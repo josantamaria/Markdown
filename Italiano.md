@@ -2,4 +2,4 @@
 
 ## 13 giugno / 23 - Odio il natale
 
-In la mattina del
+In la mattina del giorno
